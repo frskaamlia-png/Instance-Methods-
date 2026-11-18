@@ -1,1 +1,1 @@
-# Instance-Methods-
+Nama : Friska amelia putri
